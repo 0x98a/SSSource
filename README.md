@@ -3,4 +3,4 @@
 ## 
 Releasing because why not ????? this shit outdated and doesnt work anymore LOL (but it was shit imo)
 
-great code!
+great code btw!
